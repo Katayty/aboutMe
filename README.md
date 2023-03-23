@@ -1,6 +1,6 @@
 # Резюме
 Катаев Дзам 27 лет.
-https://images.app.goo.gl/xDSp9TtKhbvknbh68
+![ФОТО](https://images.app.goo.gl/xDSp9TtKhbvknbh68)
 ## Желаемая должность и зарплата
 Региональный коммерческий тренер
 Специализации:
