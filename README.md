@@ -1,6 +1,6 @@
 # Резюме
-Катаев Дзам 27 лет.
 ![ФОТО](https://sun9-76.userapi.com/s/v1/ig2/hbKFQkhtSaidCrnrQM9KqxNPltCqON4NISKCfMB-5qOmOqlmD8S3myYmIgJXkZBrZBuVXhA6P1uMj1f2RoIJCqXG.jpg?size=200x200&quality=96&crop=5,382,1317,1317&ava=1)
+Катаев Дзам 27 лет.
 ## Желаемая должность и зарплата
 Региональный коммерческий тренер
 Специализации:
